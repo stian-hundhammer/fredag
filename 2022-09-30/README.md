@@ -9,3 +9,7 @@ Musikk!
 Det har vel ikke vært noe revolusjon i musikken her i løpet av sommeren. Det går endel i gamle travere, men det er jo hyggelig det også. Enkelte favorittband har sluppet nytt materiale, og nå skal jeg se om jeg klarer å få lenket det inn til dere.
 
 1. Death Cab For Cutie - [Roman Candles](https://github.com/stian-hundhammer/fredag/raw/main/2022-09-30/mp3/death_cab_for_cutie__roman_candles.mp3)
+
+...håper ikke GitHub spasmer ut fordi jeg deler en fil her nå....
+
+2. 

@@ -6,3 +6,5 @@ Advarsel - her kommer den tekniske biten. Dere vet, jeg kjenner jo en del it-fol
 
 Musikk!
 
+Det har vel ikke vært noe revolusjon i musikken her i løpet av sommeren. Det går endel i gamle travere, men det er jo hyggelig det også. Enkelte favorittband har sluppet nytt materiale, og nå skal jeg se om jeg klarer å få lenket det inn til dere.
+

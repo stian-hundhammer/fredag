@@ -12,4 +12,12 @@ Det har vel ikke vært noe revolusjon i musikken her i løpet av sommeren. Det g
 
 ...håper ikke GitHub spasmer ut fordi jeg deler en fil her nå....
 
-2. 
+2. Built To Spill - [Spiderweb](https://github.com/stian-hundhammer/fredag/raw/main/2022-09-30/mp3/built_to_spill__spiderweb.mp3)
+
+Jeg har en skive til, men jeg tror jeg lar den ligge. Nå får vi se om dette fungerer. Skikkelig nerde-lavmål dette, men dere får leve med den denne uken.
+
+Det er høstferie for oss med unger. Jeg skal ikke ha ferie, men jobbe fra svigers. Det blir dermed tur til vestlandet. Det skal regne hele lørdagen over hele ruten, men det får stå sin prøve. Vi tar første stopp i Holmestrand for en bolle, men ellers blir det vel lydbok og mil etter mil. Ja, vi valgte å kjøre denne gangen. 
+
+God helg alle sammen!
+
+Stian

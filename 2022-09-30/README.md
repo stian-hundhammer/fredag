@@ -21,3 +21,5 @@ Det er høstferie for oss med unger. Jeg skal ikke ha ferie, men jobbe fra svige
 God helg alle sammen!
 
 Stian
+
+PS: Jeg har en billett til *Purified In Blood* fredag kveld som jeg ikke får benyttet. Ta kontakt
